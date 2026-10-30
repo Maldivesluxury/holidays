@@ -34,4 +34,14 @@ With local expertise, personalised service and a growing portfolio of luxury pla
 
 Travellers can explore luxury holiday options, build their wishlist and request a personalised Maldives proposal directly through HolidayVibe Maldives.
 
+Explore the full luxury travel collection here:
+
+Luxury Maldives Holidays by HolidayVibe
+
+Travellers can also build a personalised wishlist for accommodation, transfers, dining and experiences using the:
+
+Luxury Maldives Package Builder
+
+HolidayVibe Maldives combines local destination knowledge with personalised planning to help couples, families, honeymooners and private groups choose suitable resorts, villas and luxury experiences across the Maldives.
+
 
