@@ -34,14 +34,22 @@ With local expertise, personalised service and a growing portfolio of luxury pla
 
 Travellers can explore luxury holiday options, build their wishlist and request a personalised Maldives proposal directly through HolidayVibe Maldives.
 
-Explore the full luxury travel collection here:
+# Luxury Maldives Holidays
 
-Luxury Maldives Holidays by HolidayVibe
+HolidayVibe Maldives is a trusted local Maldives travel specialist creating bespoke luxury holidays, including overwater villas, private islands, luxury resorts, VIP transfers, yacht experiences and personalised resort packages.
 
-Travellers can also build a personalised wishlist for accommodation, transfers, dining and experiences using the:
+## Explore Luxury Maldives Holidays
 
-Luxury Maldives Package Builder
+[Luxury Maldives Holidays by HolidayVibe](https://holiday.com.mv/maldives-luxury-holidays/)
+
+## Build Your Bespoke Maldives Package
+
+Create a personalised wishlist for accommodation, transfers, dining and experiences:
+
+[Luxury Maldives Package Builder](https://holiday.com.mv/maldives-luxury-holidays/package-builder/)
 
 HolidayVibe Maldives combines local destination knowledge with personalised planning to help couples, families, honeymooners and private groups choose suitable resorts, villas and luxury experiences across the Maldives.
 
+Visit the main website:
 
+[HolidayVibe Maldives](https://holiday.com.mv/)
