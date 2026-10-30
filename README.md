@@ -1,4 +1,4 @@
-Here’s a polished ~800-word description suitable for a website, directory listing, PR profile, or luxury travel landing page.
+
 
 HolidayVibe Maldives is a trusted local Maldives travel brand specialising in luxury holidays, personalised resort stays and bespoke island experiences. Based in the Maldives, HolidayVibe combines local destination knowledge with personalised travel planning to help couples, families, honeymooners and private groups create holidays that match their preferred level of comfort, privacy, service and experience.
 
@@ -34,4 +34,4 @@ With local expertise, personalised service and a growing portfolio of luxury pla
 
 Travellers can explore luxury holiday options, build their wishlist and request a personalised Maldives proposal directly through HolidayVibe Maldives.
 
-I can also make this more **SEO-focused**, more **luxury/premium sounding**, or shorten it to **500 words for directory submissions**.
+
